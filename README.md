@@ -7,3 +7,5 @@ Cowboy et indien continue leurs activités respectives tout en continuant égale
 L'homme hurle avant de se retourné prêt a degainer son colt.
 Silence dans la salle , le piano s'est arrêté , les regards sont tournés vers la scène. 
 Mais les indiens étant en surnombre , le cowboy se dit qu'il ferais mieux de ne pas sortir son pistolet ... après un long silence il lance à ces derniers " * ça feras une bouteille de scotch pour vous faire pardonné * 
+
+Les Indiens totalement déshonorés font monter la température de la salle en lançant un duel de regard avec à la clé la mort pour le perdant. De longues minutes passent et le cowboy cligne des yeux, l'Indien tire mais la balle rebondit sur le mur et atterrie directement entre les deux yeux de la barmaid. Les ennemis font la paix pour rendre hommage à la victime de leur conflit inutiles.
